@@ -1,4 +1,4 @@
-- 👋 Hi, I’m IroyoDev
+- 👋 Hi, I’m Lorize !
 - 👀 I'm mainly interested in video game / server / S&box mod development.
 - 📫 How to reach me : discord : loris_iroyo / Mail : loris35400@gmail.com
 
